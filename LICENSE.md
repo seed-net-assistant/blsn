@@ -1,0 +1,1 @@
+Это произведение доступно по лицензии Creative Commons «Attribution-NonCommercial-ShareAlike» («Атрибуция — Некоммерческое использование — На тех же условиях») 4.0 Всемирная. Чтобы увидеть копию этой лицензии, посетите http://creativecommons.org/licenses/by-nc-sa/4.0/deed.ru.
